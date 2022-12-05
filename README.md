@@ -1,5 +1,5 @@
 # 💫 About Me:
-📍 "𝐌𝐞 𝐝𝐢𝐯𝐞𝐫𝐭𝐢𝐧𝐝𝐨 𝐚𝐩𝐫𝐞𝐧𝐝𝐞𝐧𝐝𝐨."<br>👨‍💻 Programming enthusiast<br>🏡 Working at home<br>🇧🇷 18 years old Brazilian
+📍 "𝐓𝐫𝐲𝐢𝐧𝐠 𝐦𝐲 𝐛𝐞𝐬𝐭."<br>👨‍💻 Programming enthusiast<br>🏡 Working at home<br>🇧🇷 18 years old Brazilian
 
 
 ## 🌐 Socials:
